@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Zwayy10
 - 👀 I’m interested in Data Analysis
-- 🌱 I’m currently learning Cybersecurity and Data science
+- 🌱 I’m currently learning Cybersecurity a
 - 💞️ I’m looking to collaborate on my profession
 - 📫 How to reach me bkalebe24@gmail.com and my linkedin Kalebe Borges
 - 😄 Pronouns: her
